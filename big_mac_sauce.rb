@@ -1,11 +1,11 @@
 Ingredients
-mayo
-mustard
-onion powder
-garlic powder
-paprika
-white vinegar
-dill relish
+two thirds cup mayo
+one third cup mustard
+one tsp onion powder
+ong tsp garlic powder
+one tsp paprika
+one tbsp white vinegar
+two tbsp dill relish
 
 
 steps
