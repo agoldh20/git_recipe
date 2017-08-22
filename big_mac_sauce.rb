@@ -14,4 +14,4 @@ mix with hand blender
 add relish 
 mix by hand
 
-enjoy on burgers, enjoy on chicken
+enjoy on burgers, enjoy on chicken, enjoy as a salad dressing
